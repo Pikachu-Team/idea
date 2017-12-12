@@ -1,2 +1,2 @@
 # idea
-write your ideas here, and we come it true together.
+think and write, then do it.
